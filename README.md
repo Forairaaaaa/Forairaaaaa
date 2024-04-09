@@ -1,4 +1,5 @@
-o.O
+![gravity-falls-mabel-pines](https://github.com/Forairaaaaa/Forairaaaaa/assets/64732721/7adae5f9-019c-4767-b72c-20d7b8d78f37)
+
 <!-- ### Hi there 👋 -->
 
 <!--
